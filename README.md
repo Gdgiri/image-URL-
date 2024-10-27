@@ -11,7 +11,8 @@ only for image URL
 
 logo=> ![image](https://github.com/user-attachments/assets/3e9c8bc0-6268-40a9-ba4f-6bb8dea9586f)
 
-receipe=> ![image](https://github.com/user-attachments/assets/24d25e29-f1cf-4d47-a3cf-ae2aa4664656)
+receipe=> ![WhatsApp Image 2024-10-27 at 18 01 31_f14c47f4](https://github.com/user-attachments/assets/973f1888-b719-4b34-b84d-50d32e660ee1)
+
 
 
 
