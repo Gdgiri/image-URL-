@@ -28,6 +28,50 @@ image=> ![WhatsApp Image 2025-01-25 at 20 07 03_ddb9ac6c](https://github.com/use
 
 image 5=> ![WhatsApp Image 2025-01-25 at 21 17 26_0c314507](https://github.com/user-attachments/assets/d1a59380-9e30-4a13-8718-1249fb18987b)
 
+dinamani=> ![image](https://github.com/user-attachments/assets/4f127c46-8c3d-4d51-a517-0882cb37b2da)
+
+nakeeran=>  ![image](https://github.com/user-attachments/assets/40a13f23-d2e1-4f83-a042-4472da15aa2e)
+
+Dinamalar=> ![image](https://github.com/user-attachments/assets/3da84a03-828b-40fb-9eae-46d8c274f284)
+
+dinathanthi=![image](https://github.com/user-attachments/assets/28d3b77b-c026-488e-a4ad-8831d048d28c)
+
+Puthiyathalaimuraii=> ![image](https://github.com/user-attachments/assets/a75994e4-79b0-4cfe-8e9a-3c58b363bd4d)
+
+Maalaimalar=> ![image](https://github.com/user-attachments/assets/5f5f86df-c3f5-441e-b17a-2bbe0d67c0cf)
+
+
+Vikatan=> ![image](https://github.com/user-attachments/assets/4595e118-2a8d-473f-ad52-c3a570b8faff)
+
+BBC => ![image](https://github.com/user-attachments/assets/54c18ff9-527d-4109-a1e0-37bd5e41d4e3)
+
+Hindu=> ![image](https://github.com/user-attachments/assets/74d701b3-8c39-4a81-852a-894b913160e4)
+
+IBC=> ![image](https://github.com/user-attachments/assets/123c2455-eed2-4433-8fb1-402b23c360c5)
+
+Vatican=> ![image](https://github.com/user-attachments/assets/ba72faf4-f692-4146-9a83-eefd1faa7d02)
+
+
+oneindia=> ![image](https://github.com/user-attachments/assets/2b8da88a-7f86-449d-a7ae-07af46f8ea0f)
+
+indian=> ![image](https://github.com/user-attachments/assets/a86ef7eb-2a3e-403e-8e3d-7423abd06290)
+
+good returns=> ![image](https://github.com/user-attachments/assets/beaf5902-2854-454a-a8ab-82668a40dc9b)
+
+dinakaran=> ![image](https://github.com/user-attachments/assets/245caa6a-cd97-4ebd-9685-e6f4999c75f5)
+
+news18=> ![image](https://github.com/user-attachments/assets/36cd082c-2782-4f79-895c-a00f2b07f7ad)
+
+news7=> ![image](https://github.com/user-attachments/assets/27c93e53-f869-4763-97b3-6877eb1af46f)
+
+hindustan=> ![image](https://github.com/user-attachments/assets/eec59781-fec3-4c59-936a-039538d94718)
+
+lanksari=> ![image](https://github.com/user-attachments/assets/5debee2c-649d-42c5-b788-a1eb6fed207a)
+
+
+enezw=> ![image](https://github.com/user-attachments/assets/9c22e10f-2c0b-4255-8803-ad8b11606d74)
+
+breaking=> ![image](https://github.com/user-attachments/assets/1beab735-a8f3-47c4-a493-5be2d0551b52)
 
 
 
